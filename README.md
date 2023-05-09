@@ -1,2 +1,2 @@
 # tg-bot
-add telegram members https://telegram-member-adder.com
+buy telegram subscribers https://telegram-member-adder.com
